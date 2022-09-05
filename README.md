@@ -10,7 +10,7 @@
 
 ❖ I'm a Eletronic Engineering stundent at Technological Federal University of Paraná.
 
-❖ Programming enthisiastic and game lover :D.
+❖ Programming enthusiastic and game lover :D.
 
 ❖ At the moment studying eletronics and trying to evolve in the programming field.
   
